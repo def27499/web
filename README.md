@@ -4,3 +4,8 @@
 #awesommee
 #nice
 #good
+:)
+*
+s
+ss
+aqws
